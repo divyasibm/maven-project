@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and Tumkur
+First self practice session done successfully!
